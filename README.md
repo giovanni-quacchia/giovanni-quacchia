@@ -24,4 +24,4 @@
 
 ### 📫 Connect
 
-* **LinkedIn:** [linkedin.com/in/giovanni-quacchia](www.linkedin.com/in/giovanni-quacchia-21a897249)
+* **LinkedIn:** [linkedin.com/in/giovanni-quacchia](https://www.linkedin.com/in/giovanni-quacchia-21a897249)
